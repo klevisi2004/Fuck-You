@@ -4,4 +4,4 @@
 ##### Minimal System Requirement: Windows 7, RAM Memory 1GB, 
 ## Follow me:
 ## https://www.instagram.com/klevis_r1
-## https://www.youtube.com/channel/UCMlZumdBQ7g9IUAD3v9mx8g
+## https://www.youtube.com/c/kvisiofficial/
